@@ -4,8 +4,8 @@ A 3-Tier Strategy to Boost Early Career Growth   Author: Tarun Dinkar
 # 📊 LinkedIn Premium Redesign – Student-Centric Model  
 ### By Tarun Dinkar
 
-🔗 [Read on Medium]((https://medium.com/@dinkartarun00/redesigning-linkedin-premium-for-students-a-3-tier-strategy-for-early-career-growth-e2078d0c72ac))  
-🎓 [LinkedIn Profile]([https://www.linkedin.com/in/your-link](https://www.linkedin.com/in/tarun-dinkar-14a5ba252/))
+🔗 [Read on Medium](https://medium.com/@dinkartarun00/redesigning-linkedin-premium-for-students-a-3-tier-strategy-for-early-career-growth-e2078d0c72ac) 
+🎓 [LinkedIn Profile](https://www.linkedin.com/in/your-link](https://www.linkedin.com/in/tarun-dinkar-14a5ba252/)
 
 ---
 
